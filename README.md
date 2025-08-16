@@ -1,1 +1,3 @@
-# .github
+# *Happy Krishna Janmashtami*
+## *Discover the magic of Krishna Janmashtami with 15 soulful, inspiring moments that blend devotion, wisdom, and joy. Perfect for spiritual seekers, families, and lovers of Indian culture. Feel the divine energy as we celebrate the birth of Lord Krishna — the embodiment of love, joy, and spiritual wisdom. ✨ A festival that awakens hearts, unites families, and fills lives with purpose. Share this story. Spread the light. Celebrate the divine within.* [More details…](https://spiritualkhazaana.com/web-stories/happy-krishna-janmashtami/)
+## #Janmashtami2025 #LordKrishna #SpiritualAwakening #Motivation #Inspiration #KrishnaJanmashtami #SpiritualJourney #DivineLove
